@@ -25,6 +25,8 @@ Created as a final project to demonstrate content strategy, media analysis, and 
 ![Screenshot_27-7-2025_121951_msotw emat kent edu](https://github.com/user-attachments/assets/7583850d-1600-4950-9053-326b9489b9af)
 ![Screenshot_27-7-2025_12205_msotw emat kent edu](https://github.com/user-attachments/assets/9a84fb60-8343-4dbd-bd48-1e85f6403b4e)
 <img width="2051" height="2029" alt="My View Track Design" src="https://github.com/user-attachments/assets/b8bc3ef1-317e-4e98-b2de-bff8b3c02bd3" />
+![Hennessy_Composite](https://github.com/user-attachments/assets/97e54111-afa7-46c5-b294-05acded7d1d8)
+
 
 
 ## 🎧 Podcast  
